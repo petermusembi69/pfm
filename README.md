@@ -1,2 +1,0 @@
-# pfm
-personal finance manager
