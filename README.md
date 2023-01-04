@@ -1,6 +1,6 @@
 <h1>PRIVACY NOTICE</h1>
 
-Last updated December 26, 2020
+Last updated January 4, 2023
 
 Thank you for choosing to be part of our community at Personal Finance Manager ("Company", "we", "us", "our"). We are committed to protecting your personal information and your right to privacy. If you have any questions or concerns about this privacy notice, or our practices with regards to your personal information, please contact us at p.finance.m@gmail.com.
 
